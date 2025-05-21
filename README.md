@@ -27,32 +27,3 @@
 ## 🕊️ Resultado Final
 
 Você agora tem um tsuru tradicional!
-
-![Exemplo de Tsuru](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f0/Origami-crane.svg/1024px-Origami-crane.svg.png)
-
----
-
-## 📚 Curiosidade
-
-O tsuru ficou mundialmente conhecido através da história de **Sadako Sasaki**, uma menina vítima da bomba atômica em Hiroshima que tentou dobrar mil tsurus na esperança de se curar.
-
----
-
-## 📦 Extras (Opcional)
-
-Você pode usar esse guia para:
-
-- Decorações
-- Projetos escolares
-- Atividades de meditação
-- Campanhas pela paz
-
----
-
-## 🧷 Dica
-
-Se quiser fazer 1000 tsurus (千羽鶴 *Senbazuru*), você pode amarrá-los com linha e pendurar em um varal ou galho seco para exposições.
-
----
-
-🧡 _Dobrar um tsuru é um gesto de paciência e intenção. Faça com carinho!_
